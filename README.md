@@ -10,4 +10,3 @@ Meu nome é Wilson Guilherme Neto
 
 ![](https://media.tenor.com/bFiimpRs_5gAAAAM/test.gif)
 
-![](https://tenor.com/pt-BR/view/upset-sold-out-slam-break-breaking-gif-4554636033886701889)
