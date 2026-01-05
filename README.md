@@ -8,7 +8,5 @@ Meu nome é Wilson Guilherme Neto
 - Pós-Graduação em Processos Gerenciais
 - Pós-Graduação em Metodologias Ativas e Prática Docente
 
-![](https://media.tenor.com/bFiimpRs_5gAAAAM/test.gif)
-
-![upset-sold-out](https://github.com/user-attachments/assets/9ab5fd9b-1e1f-43a9-847e-230a4121b102)
+![](https://media.tenor.com/bFiimpRs_5gAAAAM/test.gif) ![upset-sold-out](https://github.com/user-attachments/assets/9ab5fd9b-1e1f-43a9-847e-230a4121b102)
 
